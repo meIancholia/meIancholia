@@ -1,2 +1,2 @@
-![](https://media.discordapp.net/attachments/1382398471931166722/1434540989430894673/Untitled69_20251102145315.jpg?ex=6908b3e8&is=69076268&hm=df1f8d81ce42bd30d79a036b15518d876368cf3010fb5dfba511b55f38563dd5&=&format=webp&width=1207&height=721)
+![](https://64.media.tumblr.com/289134aebf486504e4987a72e29098ee/af29753c455a1482-d0/s2048x3072/76ecb18471927994c33ca5b920eab0fa34e46147.pnj)
                                    all art on profile by @sidexmice on twt [rentry](https://rentry.co/alcazarzaray) [ata](https://alcazarzaray.atabook.org/)
